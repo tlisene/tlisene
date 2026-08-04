@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Thabo Lisene
-- 👀 I’m interested in Marketing, SOftware Development and Market Resarch
+- 👀 I’m interested in Marketing, Software Development and Market Research
 - 🌱 Pronouns are he/him/his
 - 📫 How to reach me 
 
